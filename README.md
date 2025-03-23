@@ -1,1 +1,8 @@
-# its-okay-to-laugh-i-have-autism-too
+# Everyone's a critic (especially me)
+
+## Summary
+The story follows Jack, a 26-year-old autistic man, as he navigates the difficulties of dating and self-acceptance. Told in first-person, the narrative begins during a third date with a man named Barry at a quiet Mongolian BBQ restaurant, which Jack has carefully chosen to avoid sensory overload. Despite his efforts to create a controlled environment, Jack struggles with social anxiety, sensory sensitivity, and difficulty communicating. When a small disruption in the restaurant occurs, it overwhelms him and further derails the conversation. Barry becomes frustrated by Jack’s perceived emotional distance and ends the date.
+
+Following the failed interaction, Jack reflects during a therapy session with his therapist, Soraya. He shares his disappointment and internalizes the belief that his autism makes him unlovable or incapable of connection. Soraya, offering support and perspective, encourages him to write a letter to Barry for closure—even if he doesn’t plan to send it. She also reminds Jack that his value is not determined by romantic success and emphasizes the importance of self-love and self-compassion.
+
+Later, Jack unexpectedly runs into Barry on campus and attempts to explain himself. Barry is cold and dismissive, reiterating his disinterest, but Jack asserts that while Barry deserves someone who meets his needs, Jack also deserves someone willing to understand him. The story ends with Jack walking away from the interaction, taking comfort in the progress he’s made and the lessons he’s learned through therapy. Though he hasn’t found romantic success, he affirms the importance of continuing to search for self-acceptance and growth.
